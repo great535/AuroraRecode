@@ -1,2 +1,1 @@
-random4ik;532547459692625941/0ce43b3adc41058acbb8485ac7f6dab5;Developer;Aurora's lead developerттDiscord: by_random2
-KomarPena;532547459692625941/0ce43b3adc41058acbb8485ac7f6dab5;Developer;Aurora's lead adminттDiscord: mommy49
+
